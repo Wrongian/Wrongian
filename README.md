@@ -1,8 +1,4 @@
 I Sleep
-if you are wondering where all my github stuff is
-its all in my other accounts or all secret ;) 
-
-either something im not that proud of sharing or work related stuff
 
 Im actually quite adaptable and can do self-learn the programming/software related skills to do most things. I have accrued various experiences over the years from random side projects
 
