@@ -4,7 +4,7 @@ its all in my other accounts or all secret ;)
 <br>
 either something im not that proud of sharing or work related stuff
 
-Some Personal Projects(Some are unfinished):
+Some Personal Projects(that im allowed to share)(some are unfinished):
 - Bookmarks Manager Website
 - Anonymous Imageboard Forums
 - REID System to Track Covid-19 Close Contacts
